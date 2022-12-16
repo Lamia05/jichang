@@ -15,4 +15,4 @@
 1.https://getafreenode.com
 
 
-欢迎免费机场投稿，投稿地址在我们的频道评论区留下即可：https://t.me/jichangbaopo
+欢迎免费机场投稿，投稿地址在我们的频道评论区留下即可：https://t.me/jichangbaopo/25
